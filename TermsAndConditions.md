@@ -12,7 +12,7 @@ This product is not refundable, you are buying a digital copy, therefore, you ca
 * Display the product in videos/streams. Crediting is not required, though it is always appreciated
 * Use this product on a Public avatar (Commercial license not required)
 * Use this product on commissioned avatars (**only if you buy the Commercial version** )
-* Use this product on **paid ** avatars** ** (**only if you buy the Commercial version** ). Please provide credits, either as "Sacred" or a link to this product page
+* Use this product on **paid avatars** (**only if you buy the Commercial version** ). Please provide credits, either as "Sacred" or a link to this product page
 
 ### You are **not allowed** to:
 
